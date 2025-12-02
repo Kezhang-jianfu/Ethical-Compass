@@ -4,3 +4,5 @@ This project, titled "Ethical Compass," aims to expose and document ethical tran
 "Ethical Compass" serves as a vital platform to record these incidents, ensuring they are scrutinized and remembered. By shining a light on unethical actions, we encourage open dialogue and foster a culture of integrity. Through detailed case studies, storytelling, and community engagement, we will examine the implications of these behaviors, explore their impact on individuals and society, and advocate for ethical standards that prioritize honesty and respect.
 
 Together, we will navigate the murky waters of morality, guiding ourselves toward a more just and equitable world. Let us hold ourselves and others accountable, ensuring that the lessons of the past are never forgotten.
+
+#1 SZBL ZK&WHY 出轨证据
